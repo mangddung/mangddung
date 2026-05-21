@@ -1,4 +1,4 @@
-충북대학교 정보통신공학부 3학년 재학중
+충북대학교 정보통신공학부 4학년 재학중
 
 (Chungbuk National University, Information and Communication Engineering, 3rd year)
 
